@@ -1,4 +1,4 @@
-# 
+# Nativo 7-Zip plugins para Mac OS | Último 7-Zip plugins para PC Windows. Con monitoreo en tiempo real y diagnóstico del sistema — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
